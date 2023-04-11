@@ -4,5 +4,3 @@
 
 - 📫 How to reach me:
     - Email: elliot@elliotgibson.com
-    - Twitter: @egibson_glass
-    - Instagram: @egibson_glass
